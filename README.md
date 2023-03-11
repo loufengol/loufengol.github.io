@@ -4,5 +4,5 @@ Looking for lady and beautiful girl
 <font color=green>https://louf.top</font><br>
 <font color=green>https://loufeng.online</font><br>
 防封永久网址：<br>
-<font color=red>loufengol.github.io</font>
+<font color=red>https://loufengol.github.io</font>
 
